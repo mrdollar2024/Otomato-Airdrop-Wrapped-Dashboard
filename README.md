@@ -11,3 +11,7 @@ Track your airdrop history, wallet rankings, achievements, and on-chain activity
 * Compare your performance with other users
 * Generate and share personalized Wrapped cards
 dfgfdgdf
+  fdgd
+  dfggdfg
+  dfgdfg
+  
