@@ -10,6 +10,3 @@ Track your airdrop history, wallet rankings, achievements, and on-chain activity
 * Analyze your DeFi footprint and participation history
 * Compare your performance with other users
 * Generate and share personalized Wrapped cards
-dfgfdgdf
-  fdgd
-
